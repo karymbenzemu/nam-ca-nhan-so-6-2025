@@ -1,6 +1,6 @@
 <h1 dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:18pt">Năm cá nhân số 6 năm 2025: Gia đình, mối quan hệ và những cam kết quan trọng</span></h1>
 
-<p dir="ltr" style="text-align:center"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:18pt"><img alt="" src="https://tracuuthansohoc.com/wp-content/uploads/2022/08/nam-ca-nhan-so-6-than-so-hoc.jpg" style="height:667px; width:1000px" /></span></p>
+<p dir="ltr" style="text-align:center"><img alt="" src="https://sim.vn/storage/uploads/2022/09/so-6-coys-nghia-gi.webp" /></p>
 
 <p dir="ltr" style="text-align:justify"><em>Trong chu kỳ 9 năm của Thần số học, mỗi năm cá nhân mang một năng lượng riêng, ảnh hưởng đến các khía cạnh quan trọng trong cuộc sống. Nếu bạn đang bước vào </em><em>năm cá nhân số 6 năm 2025</em><em>, đây sẽ là giai đoạn tập trung vào gia đình, trách nhiệm và sự ổn định trong các mối quan hệ. Không giống như năm cá nhân số 5 đầy biến động và thay đổi, năm cá nhân số 6 mang đến sự bình yên, yêu thương và trách nhiệm. Đây là thời điểm để bạn củng cố những giá trị quan trọng trong cuộc sống, tập trung vào sự cân bằng giữa công việc và gia đình, đồng thời phát triển các mối quan hệ tình cảm.</em></p>
 
